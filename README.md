@@ -1,1 +1,1 @@
-# Jam3na-firstSym
+# Jam3na-firstSymester
